@@ -2,8 +2,8 @@ Privacy Policy
 ----------------
 
 ### Introduction  
-Our privacy policy will help you understand what information we collect at Startrick Marketplace, how Startrick Marketplace uses it, and what choices you have.
-Startrick Marketplace built the Startrick Marketplace app as a free app. This SERVICE is provided by Startrick Marketplace at no cost and is intended for use as is.
+Our privacy policy will help you understand what information we collect at Startrick Marketplace Buy, how Startrick Marketplace Buy uses it, and what choices you have.
+Startrick Marketplace Buy built the Startrick Marketplace Buy app as a free app. This SERVICE is provided by Startrick Marketplace Buy at no cost and is intended for use as is.
 If you choose to use our Service, then you agree to the collection and use of information in  relation with this policy. The Personal Information that we collect are used for providing and improving the Service. We will not use or share your information with anyone except as described in this Privacy Policy.  
 The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which is accessible in our website, unless otherwise  defined in this Privacy Policy.
 
